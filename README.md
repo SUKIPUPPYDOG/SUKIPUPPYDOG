@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**SUKIPUPPYDOG/SUKIPUPPYDOG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<img width="720" height="543" alt="Screenshot_20251124-222416" src="https://github.com/user-attachments/assets/32e15d44-b21e-459f-b554-be45626111a0" />
+
+
+
+
+<img width="720" height="336" alt="Screenshot_20251124-221902" src="https://github.com/user-attachments/assets/7bc9d57e-613d-4812-b6d7-53f0000edd11" />
+
+
+
+
+
+<img width="720" height="500" alt="Screenshot_20251124-222346" src="https://github.com/user-attachments/assets/89b48633-b1be-4606-9543-dfbccb5ee4c5" />
