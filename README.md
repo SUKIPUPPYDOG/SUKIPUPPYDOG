@@ -15,3 +15,8 @@
 
 
 <img width="720" height="500" alt="Screenshot_20251124-222346" src="https://github.com/user-attachments/assets/89b48633-b1be-4606-9543-dfbccb5ee4c5" />
+
+
+
+
+i think i like azure 👀👀
