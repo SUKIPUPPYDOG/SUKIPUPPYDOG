@@ -2,21 +2,13 @@
 
 
 
-
-<img width="720" height="543" alt="Screenshot_20251124-222416" src="https://github.com/user-attachments/assets/32e15d44-b21e-459f-b554-be45626111a0" />
-
+<img width="720" height="1023" alt="Screenshot_20251125-231637" src="https://github.com/user-attachments/assets/56e143f4-169b-4172-94b3-917114135d46" />
 
 
 
-<img width="720" height="336" alt="Screenshot_20251124-221902" src="https://github.com/user-attachments/assets/7bc9d57e-613d-4812-b6d7-53f0000edd11" />
+<img width="720" height="705" alt="Screenshot_20251125-231304" src="https://github.com/user-attachments/assets/58b2fed1-ce14-4e1e-98d4-c02f235f352a" />
 
 
 
 
-
-<img width="720" height="500" alt="Screenshot_20251124-222346" src="https://github.com/user-attachments/assets/89b48633-b1be-4606-9543-dfbccb5ee4c5" />
-
-
-
-
-i think i like azure 👀👀
+<img width="720" height="454" alt="Screenshot_20251125-231858" src="https://github.com/user-attachments/assets/b39e0a5d-f79e-41c9-9574-8aba501fc28b" />
