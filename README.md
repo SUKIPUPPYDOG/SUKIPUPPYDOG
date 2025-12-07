@@ -3,6 +3,6 @@
 
 
 <img width="711" height="561" alt="Screenshot_20251206-060819" src="https://github.com/user-attachments/assets/1a4e1223-50ce-4692-beb4-a62c4110b352" />
-      trans guy - he / they :')
+
 
           
