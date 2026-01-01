@@ -8,4 +8,3 @@
 
 ㅤㅤㅤ
 ㅤshelly kinㅤㅤㅤㅤ doubles iwc / dniuf
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h enc
