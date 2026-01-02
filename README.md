@@ -7,4 +7,4 @@
 
 
 ㅤㅤㅤ
-ㅤshelly kinㅤㅤㅤㅤ doubles iwc 💝
+ㅤshelly kinㅤㅤㅤㅤ doubles iwc ♡
